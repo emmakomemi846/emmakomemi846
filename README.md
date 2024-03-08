@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @emmakomemi846
+- 👀 I’m interested in echpochmak
+- 🌱 I’m currently learning echpochmak
+- 💞️ I’m looking to collaborate on echpochmak
+- 📫 How to reach me echpochmak
+- 😄 Pronouns: echpochmak
+- ⚡ Fun fact: echpochmak
